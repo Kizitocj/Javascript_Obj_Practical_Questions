@@ -1,0 +1,1 @@
+I answered the questions i undestood based on my current knowledge on this
